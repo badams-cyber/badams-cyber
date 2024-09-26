@@ -2,7 +2,7 @@
 - 👀 I’m interested in books books and more books
 - 🌱 I’m currently learning for my master's in cybersecurity
 - 💞️ I’m looking to collaborate on networking and programming
-- 📫 How to reach me bladams@my.athens.edu
+- 📫 How to reach me bguess@my.athens.edu
 - 😄 Pronouns: She/Her 
 - ⚡ Fun fact: I read constantly.  In my spare time, you will find me reading either a book or from my Kindle.  Also, we love to play Pokemon Go.
 
